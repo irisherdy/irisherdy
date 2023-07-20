@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: Ela/Dela
 - 🎹 hobbies: 🎹🎧📺📚📝
 - ⚡ Curiosidade: Eu sou a humana de dois gatinhos, o Batman e a Kitty 😸😸
-- 📫 Como me contatar: irisherdyrangel AT gmail DOT com | LinkedIn: @irisherdyrangel
+- 📫 Como me contatar: irishmpeixoto AT gmail DOT com | LinkedIn: @irisherdy
 
 ---------------------------------------------------------------------------------------------------------------------------
 
@@ -33,7 +33,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/Her
 - 🎹 hobbies: 🎹🎧📺📚📝
 - ⚡ Fun fact: I am the human of two kittens, Batman and Kitty 😸😸
-- 📫 How to reach me: irisherdyrangel AT gmail DOT com | LinkedIn: @irisherdyrangel
+- 📫 How to reach me: irishmpeixoto AT gmail DOT com | LinkedIn: @irisherdy
 
 ---------------------------------------------------------------------------------------------------------------------------
 
